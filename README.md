@@ -1,1 +1,7 @@
-![alt text](https://i.pinimg.com/736x/d3/71/85/d37185e04f1bd5f5ce07facfce82a524.jpg)
+<div align="center">
+  
+![](https://file.garden/aVv63DlleiJPIk3x/miku3(3).png)<br>
+꒰ ๑ơ ₃ ơ꒱　yori ⨾ she/they pronouns<br>
+　◡◡　proship + judelow fans dni<br>
+c+h is enc unless stated otherwise<br>
+[atabook](https://dearestfawn.atabook.org/)　[strawpage](https://pastelpianos.straw.page/)　[prns.cc](https://pronouns.cc/@dearestfawn)
